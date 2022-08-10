@@ -1,4 +1,7 @@
-### Hi there 👋
+### Join Nezavisimost' 🏴‍☠️ 
+
+https://github.com/nezavisimost
+
 
 <!--
 **the2pizza/the2pizza** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
