@@ -1,6 +1,6 @@
-### Join Nezavisimost' 🏴‍☠️ 
+### FRKN: Privacy Company 🏴‍☠️ 
 
-https://github.com/nezavisimost
+[frkn-dev](https://github.com/frkn-dev)
 
 
 <!--
